@@ -13,3 +13,4 @@ are good. Quite possibly the best variant of french fries in the fast food indus
 ## Financial Stability
 
 ## My failed fanfiction
+I remember my first attempt at unobligatory, fictional writing. It was god-awful and if I ever find the notebook I used to brainstorm all my ideas, I'm going to burn it. It was called "7 Legends," and it was very much a bootleg version of RWBY, which is a computer animated web series that I wish I had never come across. It gave me bad ideas, my creation the case in point.
