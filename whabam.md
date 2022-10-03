@@ -1,5 +1,5 @@
 # The Vast Trenches of my Brain
-Welcome to the site I will be using to dump all of my intrusive thoughts into, aside from the ideas that would get me clocked by school admin. I have a great number of 9 things that bring me joy in life, so I will be ranting about a small assortment of them.
+Welcome to the site I will be using to dump all of my intrusive thoughts into, aside from the ideas that would get me clocked by school admin. 
 
 ## Webtoons, Manga, and Fanfiction
 Daily passes and spending coins hurts me. I'm fairly certain that in ten years' time, I will be living in a cheap, run-down apartment with a low-paying job, and spending every penny I have on buying more coins. If I become successful, it will be purely for the purpose of buying coins or supporting the author's patreon.
